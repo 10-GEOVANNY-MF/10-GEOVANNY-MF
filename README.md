@@ -1,0 +1,5 @@
+- 👋 Oi meu nome é Geovanny tenho 17  anos sou um aluno do cólegio maluf 
+- Eu estou interessado em aprender mais sobre a matéria de pensamento computacional
+- E também quero aprender mais sobre a minha futura  profissão que é ser advogado 
+- Eu tento sempre colaborar em casa para ajudar a minha mãe para ela nunca mais precisar trabalhar 
+-  Para me encontrar eu estou a maior parte do meu tempo estou na minha casa ou na escola 
